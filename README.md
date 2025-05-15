@@ -4,6 +4,64 @@
 <p class="" data-start="456" data-end="505">But what if I told you that the game has changed?</p>
 <p class="" data-start="507" data-end="882">What if I told you that with just a few simple clicks and a sprinkle of creativity, you could generate an entire coloring book — not in weeks, not even in days — but in minutes? And what if I added that this isn't some “too good to be true” fluff? It’s real. It’s here. It’s called <strong data-start="789" data-end="806">Nurie Creator</strong>, and it’s the kind of breakthrough that people dream about but rarely find.</p>
 
+# 🖍️ Nurie Creator – Full Funnel + Exclusive Bonuses
+
+## ⚠️ READ THIS FIRST:
+To unlock **exclusive William bonuses**, you must purchase from the **Front-End link** below. All bonuses are delivered only when you use the affiliate link and follow the steps below.
+
+📌 **WarriorPlus Link (FE):**  
+`warriorplus[dot]com/o2/a/xg2lvx2/0/g`  
+🎯 **Affiliate ID Required for Bonus Eligibility**
+
+---
+
+## 🧩 Front End (FE): Nurie Creator  
+🎨 Create & Sell Printable Coloring Pages & Books in Minutes  
+👉 Link:  
+`warriorplus[dot]com/o2/a/xg2lvx2/0/g`
+
+---
+
+## 🚀 OTO 1: Nurie Creator PRO  
+⚙️ Unlock Advanced Features and Templates  
+👉 `royaltyprints[dot]co/nurie-creator-pro-iichi/`
+
+---
+
+## 🔓 OTO 2: Nurie Creator ELITE  
+📈 Get More Tools, Content, and Profit Potential  
+👉 `royaltyprints[dot]co/nurie-creator-elite-ni/`
+
+---
+
+## 🎨 OTO 3: 100 DFY Book Covers  
+📚 Professionally Designed Covers Ready for Use  
+👉 `royaltyprints[dot]co/nurie-creator-100-san/`
+
+---
+
+## 🎁 Bonus Page – What You’ll Get  
+➡️ Bonus Preview:  
+`williamreview[dot]com/nurie-creator/`
+
+---
+
+## 💎 Special Bonuses From Me  
+🎁 **Mega 5,000 Bonus Vault – Worth $2,976,749+**  
+👉 Instant Access:  
+`jvzooplinformation[dot]blogspot[dot]com/2023/04/vip-5000-bonuses-from-william-review.html`
+
+---
+
+## ✅ How to Claim Your Bonuses:
+
+1. Buy **Nurie Creator** from the **FE link** above  
+2. Email your **receipt ID** to: `support@williamreview[dot]com`  
+3. You'll receive **ALL bonuses within 12 hours**  
+📧 Don’t forget to confirm Step 2 via email!
+
+---
+
 <h3 class="" data-start="884" data-end="945"><strong data-start="888" data-end="945">My Honest Journey Into the World of AI Coloring Books</strong></h3>
 <p class="" data-start="947" data-end="1407">When I first heard about Nurie Creator, I’ll be honest — I was skeptical. I've seen countless tools come and go, all promising passive income and creative freedom. But this one felt... different. There was a buzz. People were actually getting results. And not just tech-savvy entrepreneurs or seasoned marketers, but everyday folks — teachers, moms, retirees, side hustlers — were creating real, sellable coloring books <em data-start="1367" data-end="1376">without</em> needing to draw a single line.</p>
 <p class="" data-start="1409" data-end="1468">That’s when I dove in. And what happened next blew me away.</p>
@@ -132,3 +190,60 @@
 <p class="" data-start="6852" data-end="6968">Start today. Not tomorrow. Because if you wait, someone else is already uploading the book <em data-start="6943" data-end="6948">you</em> could have created.</p>
 <p class="" data-start="6970" data-end="7036">👉 <strong data-start="6973" data-end="7036">Buy Nurie Creator Now and Start Creating Your Future Today.</strong></p>
 <p class="" data-start="7038" data-end="7115">No talent? No problem.<br data-start="7060" data-end="7063" />No time? Takes minutes.<br data-start="7086" data-end="7089" />No excuses. Let’s do this.</p>
+# 🖍️ Nurie Creator – Full Funnel + Exclusive Bonuses
+
+## ⚠️ READ THIS FIRST:
+To unlock **exclusive William bonuses**, you must purchase from the **Front-End link** below. All bonuses are delivered only when you use the affiliate link and follow the steps below.
+
+📌 **WarriorPlus Link (FE):**  
+`warriorplus[dot]com/o2/a/xg2lvx2/0/g`  
+🎯 **Affiliate ID Required for Bonus Eligibility**
+
+---
+
+## 🧩 Front End (FE): Nurie Creator  
+🎨 Create & Sell Printable Coloring Pages & Books in Minutes  
+👉 Link:  
+`warriorplus[dot]com/o2/a/xg2lvx2/0/g`
+
+---
+
+## 🚀 OTO 1: Nurie Creator PRO  
+⚙️ Unlock Advanced Features and Templates  
+👉 `royaltyprints[dot]co/nurie-creator-pro-iichi/`
+
+---
+
+## 🔓 OTO 2: Nurie Creator ELITE  
+📈 Get More Tools, Content, and Profit Potential  
+👉 `royaltyprints[dot]co/nurie-creator-elite-ni/`
+
+---
+
+## 🎨 OTO 3: 100 DFY Book Covers  
+📚 Professionally Designed Covers Ready for Use  
+👉 `royaltyprints[dot]co/nurie-creator-100-san/`
+
+---
+
+## 🎁 Bonus Page – What You’ll Get  
+➡️ Bonus Preview:  
+`williamreview[dot]com/nurie-creator/`
+
+---
+
+## 💎 Special Bonuses From Me  
+🎁 **Mega 5,000 Bonus Vault – Worth $2,976,749+**  
+👉 Instant Access:  
+`jvzooplinformation[dot]blogspot[dot]com/2023/04/vip-5000-bonuses-from-william-review.html`
+
+---
+
+## ✅ How to Claim Your Bonuses:
+
+1. Buy **Nurie Creator** from the **FE link** above  
+2. Email your **receipt ID** to: `support@williamreview[dot]com`  
+3. You'll receive **ALL bonuses within 12 hours**  
+📧 Don’t forget to confirm Step 2 via email!
+
+---
